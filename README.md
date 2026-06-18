@@ -26,7 +26,7 @@ Aspiring Data Analyst passionate about turning raw data into actionable business
 
 📫 Email: [smitabasu09@gmail.com](mailto:smitabasu09@gmail.com)
 💼 LinkedIn: [www.linkedin.com/in/
-smita-basu-343052260](www.linkedin.com/in/
+smita-basu-343052260](https://www.linkedin.com/in/
 smita-basu-343052260
 )
 

@@ -25,9 +25,6 @@ Aspiring Data Analyst passionate about turning raw data into actionable business
 🌎 Open to Data Analyst opportunities across India and Remote roles worldwide
 
 📫 Email: [smitabasu09@gmail.com](mailto:smitabasu09@gmail.com)
-💼 LinkedIn: [linkedin.com/in/
-smita-basu-343052260](https://www.linkedin.com/in/
-smita-basu-343052260
-)
+💼 LinkedIn: [linkedin.com/in/smita-basu-343052260](https://www.linkedin.com/in/smita-basu-343052260)
 
 💡 Interested in customer analytics, sales analytics, profitability analysis, customer segmentation, and business intelligence.
